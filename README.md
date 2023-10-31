@@ -8,3 +8,4 @@ Meu nome é Anthony Israel Silva Kuster
 
  ### Voce pode entrar em contato comigo 📫 anthony.kuster@escola.pr.gov.br
  ![](https://media.tenor.com/LoziwJSpAyAAAAAi/hulk-dance.gif)
+![](https://media.tenor.com/yEIYluHz3vgAAAAd/wow.gif)
